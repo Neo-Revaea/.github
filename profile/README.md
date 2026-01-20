@@ -3,39 +3,40 @@
 
 # Another [Revaea](https://revaea.com): Kindred Spirit of the Sea
 
-世界在最初，也许只是一整块沉睡的蓝宝石，静默、厚重，封存着尚未醒来的光。  
-后来，不知是谁失手打翻了盛满光线的瓶子——  
-清脆的一声，宝石碎裂。  
-而那只手并未离去，它耐心又温柔，将破碎的蓝重新拾起、拼合，于是，世界学会了呼吸。  
+In the beginning, the world may have been a single, slumbering sapphire—  
+silent and weighty, sealing away light that had yet to awaken.  
+Then, somehow, someone overturned a bottle brimming with light—  
+a clear, ringing sound, and the gem shattered.  
+Yet that hand did not withdraw. With patience and gentleness, it gathered the broken blue, piecing it back together, and so the world learned how to breathe.  
 
-于是，海有了层次。  
+And thus, the sea gained its depth.  
 
-你看那片海面，不再是浑沌的一色。  
-潮汐与暗流像细致的工匠，将它切割、排列，拼成深浅交错的版图。  
-深处，是凝结的靛青，如深夜独自沉思的眼睛，收藏着坠落却未熄灭的星辰；  
-浅处，是澄明的蔚蓝，像被阳光反复洗过的玻璃糖纸，轻盈、透明，几乎要随光飞起。  
-它们彼此嵌合、彼此呼应，仿佛一场只属于蓝色的盛大展览，在无风的正午，静静延展至地平线的尽头。  
+Look at the surface of the sea now: no longer a single blur of color.  
+Tides and undercurrents, like meticulous craftsmen, carve and arrange it, assembling a map of interwoven shades.  
+In the depths lies a condensed indigo, like an eye lost in solitary midnight thought, holding fallen yet unextinguished stars;  
+along the shallows spreads a lucid azure, like glassy candy wrappers rinsed again and again by sunlight—light, translucent, almost ready to lift into the sky with the light itself.  
+They interlock and respond to one another, as if a grand exposition devoted solely to blue were unfolding, quietly stretching to the edge of the horizon beneath a windless noon.  
 
-这里没有喧嚣，只有节律。  
+There is no clamor here—only rhythm.  
 
-风，是这个世界的琴师。  
-当它掠过海面，白色的浪花便自觉排成长线，蜿蜒起伏，如同写在海上的五线谱。  
-跃起的水珠、贴水而行的银鱼，是谱中流转的音符。  
-你听不见任何机械的轰鸣，只能听见浪花撞击礁石时清脆而悠长的——  
-“叮——咚——”。  
-那是大海在呼吸，每一次起伏，都是一句尚未写完的诗。  
+The wind is the world’s pianist.  
+When it sweeps across the sea, white crests line up of their own accord, winding and rising like a staff written upon the water.  
+Leaping droplets and silver fish skimming the surface become the notes that wander across it.  
+You hear no mechanical roar—only the clear, lingering sound of waves striking rock:  
+ding—dong—.  
+That is the sea breathing; every rise and fall is a line of poetry not yet finished.  
 
-而在这无尽蓝色的正中央，  
-悬浮着一抹苍白的寂静。  
+And at the very center of this endless blue  
+floats a pale silence.  
 
-它是一座岛，也像一轮未曾坠落的白昼之月。  
-白得近乎透明，白得近乎孤独。  
-它不属于深蓝的忧郁，也不属于浅蓝的欢愉，只是静静伫立，散发着清冷而柔和的光。  
-它是流浪潮汐最终的归所，是这首蓝色交响中唯一、也是必要的休止符。  
+It is an island, and also like a moon of daylight that has never set.  
+So white it is almost transparent, so white it is nearly lonely.  
+It belongs neither to the melancholy of deep blue nor to the joy of light blue; it simply stands there, quietly, casting a cool and gentle glow.  
+It is the final refuge of wandering tides, the only—and necessary—rest in this blue symphony.  
 
-所有的声音，在这里都会放慢脚步。  
-所有的蓝色，在这里都会变得澄澈。  
+All sounds slow their steps here.  
+All shades of blue grow clear.  
 
-若你抵达此处，请不要说话。  
-只需化作一朵云，或一粒盐——  
-融化在这深浅交织的蓝，与那恒久不变的白之中。  
+If you arrive at this place, please, do not speak.  
+Simply become a cloud, or even a grain of salt—  
+and dissolve into this interwoven blue, and the eternal, unchanging white.  
